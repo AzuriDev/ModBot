@@ -9,4 +9,4 @@ Et le tour est joué!
 
 
 
-DISCORD : Azuri#0001
+DISCORD : azuri.#0001
